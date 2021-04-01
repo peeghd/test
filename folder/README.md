@@ -1,0 +1,1 @@
+to plik testowy / przykładowy
